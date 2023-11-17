@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LauraI-S
+- 👋 Hi, I’m @Laura
 - 👀 I’m interested in learning new things everyday
 - 🌱 I’m currently learning to be a Fullstack Web-Developer @ CodeAcademy Berlin
 - 💞️ I’m looking to collaborate on ...
