@@ -1,4 +1,4 @@
-👩‍💻 Web Developer in Training | 👶 Two-Time Mom | 🤱 Former Freelance Midwife
+👩‍💻 Web Developer in Training | 🤱 Former Freelance Midwife
 
 🌟 About Me
 
